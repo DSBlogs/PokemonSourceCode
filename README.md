@@ -1,2 +1,0 @@
-# DinsonCat.github.io
-Blog
